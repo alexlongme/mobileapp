@@ -6,6 +6,4 @@
 
 
 
-
-
 How are you doing?
